@@ -1,1 +1,1 @@
-https://github.com/Magisterial335/rsschool-cv/cv
+https://Magisterial335.github.io/rsschool-cv/cv
